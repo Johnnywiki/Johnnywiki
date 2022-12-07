@@ -1,4 +1,4 @@
-- 🖐🏻 GLAD I GOT YOUR ATTENTTION, SHALL WE BEGIN?
+- 🖐🏻 GLAD I GOT YOUR ATTENTION, SHALL WE BEGIN?
         Pleasure to meet you! Name's @Johnnywiki
         
 - 👀 WHERE DO YOU RESIDE CURRENTLY?
